@@ -1,1 +1,0 @@
-# m-kucera.github.io
